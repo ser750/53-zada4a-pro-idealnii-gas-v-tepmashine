@@ -1,1 +1,0 @@
-# 53-zada4a-pro-idealnii-gas-v-tepmashine
